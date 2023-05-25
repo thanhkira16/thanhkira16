@@ -5,7 +5,7 @@
 </p>
 
 
-- ✍ I'm currently first year at [Viet Nam - Korea ](http://vku.udn.vn/).
+- ✍ I'm currently first year at [Viet Nam - Korea University](http://vku.udn.vn/).
 
 <br />
 
