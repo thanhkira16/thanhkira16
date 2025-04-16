@@ -7,13 +7,6 @@
 
 ---
 
-## 🎯 Career Objective
-
-I'm actively looking for part-time jobs or internships to gain real-world experience.  
-After graduation, I aim to work in international teams to build impactful software solutions.
-
----
-
 ## 🧠 Education
 
 🎓 **Vietnam-Korea University of Information and Communication Technology (VKU)**  
